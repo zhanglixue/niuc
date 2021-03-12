@@ -9,4 +9,3 @@
 小奶猫直播下载：<li><a href="http://0s9l.com/2852061" target="_blank" rel="noopener">http://0s9l.com/2852061</a></li>
 91滴滴下载：<li><a href="https://aff.91didi.me/chan-1019/aff-fYsw" target="_blank" rel="noopener">https://download.91didi.xyz/chan-1019/aff-fYsw</a></li>
 撸先生下载：<li><a href="https://aff.youseyun.net/c-1/a-fdW8/" target="_blank" rel="noopener">https://aff.youseyun.net/c-1/a-fdW8/</a></li>
-嗨浪下载：<li><a href="https://vip.lusir024.com/c-1/a-bwEa/" target="_blank" rel="noopener">https://vip.lusir024.com/c-1/a-bwEa/</a></li>
