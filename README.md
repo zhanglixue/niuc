@@ -1,7 +1,7 @@
 <li>请牢记本网址/防屏蔽（加入收藏夹）</li>
 牛C网永久地址：<li><a href="https://niuc.net" target="_blank" rel="noopener">https://niuc.net</a></li>
 牛C网最新地址：<li><a href="https://xniuc.com" target="_blank" rel="noopener">https://xniuc.com</a></li>
-牛C网导航：<li><a href="https://niuc.me" target="_blank" rel="noopener">https://niuc.me</a></li>
+牛C网导航：<li><a href="https://niuc.icu" target="_blank" rel="noopener">https://niuc.icu</a></li>
 福利APP合集：<li><a href="https://niuc.net/share/1678.html" target="_blank" rel="noopener">https://niuc.net/share/1678.html</a></li>
 91短视频下载：<li><a href="http://download.91porn005.me/chan-1053/aff-cq4U3" target="_blank" rel="noopener">http://download.91porn005.me/chan-1053/aff-cq4U3</a></li>
 91AV下载：<li><a href="http://download.i91av.org/chan-1038/aff-JTgM" target="_blank" rel="noopener">https://app.i91av.org/chan-1038/aff-JTgM</a></li>
