@@ -42,7 +42,7 @@
 <li>51视频：http://dy001.me/index_h5.html?code=%E5%8F%A9%E3%80%87*3im9lbqg*channel</li>
 <li>红颜直播：https://hyzb2.cc/?parent_icode=53591796</li>
 <li>泡芙直播：http://775aa.xyz/?parent_icode=11114930</li>
-<li>橘子直播：https://jzzb5.com/?parent_icode=63153368</li>
+<li>橘子直播：https://jz807.com/?channelCode=NCdh</li>
 <li>梦幻直播：http://hhy2.150117.club/index.html?topuserid=2372126</li>
 <li>优优直播：http://uuzb6.cc/?parent_icode=49576166</li>
 <li>亚米直播：http://ym.wangshulei123.xyz/m.html?topuserid=3003939</li>
