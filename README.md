@@ -7,4 +7,7 @@
 <li>直播福利APP：https://live.niuc.net</li>
 <li>福利APP推荐：https://fuli.niuc.net</li>
 <li>福利APP合集：https://niuc.net/share/1678.html</li>
-发送邮件到niucmail@gmail.com获取牛C网最新地址。
+<li>发送邮件到niucmail@gmail.com获取牛C网最新地址。</li>
+<li>以下图片正常显示那么网站就是存在的，如果打不开可以挂代理。</li>
+<img src="https://s0.wp.com/mshots/v1/niuc.net?w=383&h=328" alt="" />
+<img src="https://s0.wp.com/mshots/v1/9i1.net?w=383&h=328" alt="" />
