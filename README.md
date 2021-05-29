@@ -20,6 +20,10 @@
 <li>91比心：https://a.91bx.me/chan-1013/aff-aCKw</li>
 <li>小蓝视频：https://xlan.bluemv.info/chan/xb0120/fEV</li>
 <li>91抖阴：https://dypro.site/?channel=dy916905</li>
+<li>丝瓜视频：https://sg106.me?channel=tbwjjg026</li>
+<li>91啪啪：https://gj91pp.com?channel=tbwpp52851</li>
+<li>91茄子：https://gj91qz.com?channel=tbwqz52851</li>
+<li>91黄瓜：https://gj91hg.com?channel=tbwhg52851</li>
 <li>蜜桃视频：https://mtajfu.xyz/?ch=cwx33</li>
 <li>小妲己直播：https://kemh.xyz/2852061</li>
 <li>精东视频：https://jdhot11.site/?_c=jdzc022</li>
@@ -31,7 +35,6 @@
 <li>A头条：https://att10.me/?channel=dl0730</li>
 <li>番啪啪：http://fpapa6.site/?code=dfha005</li>
 <li>草榴视频：https://flsdy.fun/?ch=lvbu</li>
-<li>微啪：https://papa11.me/?channel=qd6961903</li>
 <li>撸先生：https://invited.simibo.net/c-1/a-fdW8/</li>
 <li>泡芙短视频：https://pfdspb.me/?dc=LUBU</li>
 <li>涩里番：https://slf506.com/?_c=slf6906</li>
