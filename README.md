@@ -19,6 +19,7 @@
 <li>妻友：http://app.iwanna.me/chan-1015/aff-ar4</li>
 <li>91比心：https://a.91bx.me/chan-1013/aff-aCKw</li>
 <li>小蓝视频：https://xlan.bluemv.info/chan/xb0120/fEV</li>
+<li>花间堂：https://nismcr.xyz/?ch=cwx33</li>
 <li>91抖阴：https://dypro.site/?channel=dy916905</li>
 <li>丝瓜视频：https://sg106.me?channel=tbwjjg026</li>
 <li>91啪啪：https://gj91pp.com?channel=tbwpp52851</li>
