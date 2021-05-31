@@ -25,7 +25,7 @@
 <li>91茄子：https://gj91qz.com?channel=tbwqz52851</li>
 <li>91黄瓜：https://gj91hg.com?channel=tbwhg52851</li>
 <li>蜜桃视频：https://mtajfu.xyz/?ch=cwx33</li>
-<li>小妲己直播：https://kemh.xyz/2852061</li>
+<li>小妲己直播：http://od5l.xyz/2852061</li>
 <li>精东视频：https://jdhot11.site/?_c=jdzc022</li>
 <li>尤蜜视频：https://203you.me/?_c=a0122</li>
 <li>爱私欲视频：https://isiyu6.me/?channel=qud010</li>
