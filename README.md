@@ -19,6 +19,7 @@
 <li>妻友：http://app.iwanna.me/chan-1015/aff-ar4</li>
 <li>91比心：https://a.91bx.me/chan-1013/aff-aCKw</li>
 <li>小蓝视频：https://xlan.bluemv.info/chan/xb0120/fEV</li>
+<li>91丝瓜：https://s.91sgbb.site?_c=t91sg30</li>
 <li>草莓视频：https://dy91cm.com?channel=t61dy19</li>
 <li>番茄社区：https://dy91fq.com?channel=t61dy59</li>
 <li>茄子视频：https://dy91qz.com?channel=t61dy99</li>
