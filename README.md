@@ -44,7 +44,6 @@
 <li>菠萝视频(直播)：https://app.polomv.com/chan/bu0224/gHr</li>
 <li>精东视频：https://jdhot11.site/?_c=jdzc022</li>
 <li>尤蜜视频：https://203you.me/?_c=a0122</li>
-<li>爱私欲视频：https://isiyu8.me?channel=qud010</li>
 <li>色中色视频：https://51sis.cc?dc=NNCA</li>
 <li>来撩短视频：https://china1.lailiao8c.com/?key=7KF15D</li>
 <li>抖阴短视频：https://21dy.me/?channel=qd080301</li>
