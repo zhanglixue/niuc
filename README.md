@@ -13,7 +13,7 @@
 <li>91av：http://download.aff91.com/chan-1038/aff-JTgM</li>
 <li>汤头条：http://club.ttt001.me/chan/a10073/gG26</li>
 <li>91滴滴：https://app.91didi.xyz/chan-1019/aff-fYsw</li>
-<li>茶馆儿：http://site.tea51app.com/?code=cZMM&c=126</li>
+<li>茶馆儿：http://site.yousetv.net/?code=cZMM&c=126</li>
 <li>50度灰：http://club.i50dh.net/chan/h50156/busW</li>
 <li>菠萝直播：https://app.polomv.com/chan/bu0224/gHr</li>
 <li>妻友：http://app.iwanna.me/chan-1015/aff-ar4</li>
@@ -31,7 +31,7 @@
 <li>91青青草：https://qc01.me?_c=tbwqq01</li>
 <li>91抖阴：https://dypro.site?channel=dy916905</li>
 <li>蜜桃视频：https://mtajfu.xyz/?ch=cwx33</li>
-<li>丝瓜视频：https://sg106.me?channel=tbwjjg026</li>
+<li>丝瓜视频：https://91sg02.site?agent=tbwjjg026</li>
 <li>91啪啪：https://gj91pp.com?channel=tbwpp52851</li>
 <li>91茄子：https://gj91qz.com?channel=tbwqz52851</li>
 <li>91黄瓜：https://gj91hg.com?channel=tbwhg52851</li>
