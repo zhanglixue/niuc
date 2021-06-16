@@ -52,7 +52,6 @@
 <li>抖阴短视频：https://21dy.me/?channel=qd080301</li>
 <li>妹团(约炮)：https://g.mt04.me?_c=mtjg32704</li>
 <li>91短视频：http://download.91porn.love/chan-1053/aff-cq4U3</li>
-<li>A头条：https://att10.me?channel=dl0730</li>
 <li>番啪啪：http://fpapa6.site/?code=dfha005</li>
 <li>xvideo：https://g.mt04.me?_c=mtjg32704</li>
 <li>草榴视频： https://flsdy.fun?ch=lvbu</li>
