@@ -68,7 +68,7 @@
 <li>快撸视频：https://klijfu.xyz?ch=cwx33</li>
 <li>知音视频：https://avnnip.xyz?ch=cwx33</li>
 <li>优优直播：https://933d.tv/?parent_icode=49576166</li>
-<li>涩里番：https://slf506.com?_c=slf6906</li>
+<li>涩里番：https://slf508.com?_c=slf6906</li>
 <li>微性视频：https://wesex.cc/?_c=wx08zc</li>
 <li>抖阴国际：https://dou13.me/?channel=dy40zc</li>
 <li>麻豆传媒映画：https://mdapp09.com/?_c=dha00003</li>
