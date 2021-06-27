@@ -9,6 +9,7 @@
 <li>福利APP推荐：https://fuli.niuc.net</li>
 <li>福利APP合集：https://niuc.net/share/1678.html</li>
 <li>发送邮件到niucmail@gmail.com获取牛C网最新地址。</li>
+<li>91制片厂：https://www.91mv.org/app/chan-1012/aff-cjDS</li>
 <li>91短視頻：https://download.91porn.love/chan-1053/aff-cq4U3</li>
 <li>91av：http://download.aff91.com/chan-1038/aff-JTgM</li>
 <li>汤头条：http://club.ttt001.me/chan/a10073/gG26</li>
@@ -19,6 +20,9 @@
 <li>妻友：http://app.iwanna.me/chan-1015/aff-ar4</li>
 <li>91比心：https://a.91bx.me/chan-1013/aff-aCKw</li>
 <li>小蓝视频：https://xlan.bluemv.info/chan/xb0120/fEV</li>
+<li>1024核工厂：https://yyds1.me?agent=yyds20</li>
+<li>草榴：https://t66y.site?agent=t66y24</li>
+<li>SM视频：https://sm110.me?agent=sm11020</li>
 <li>真91视频：https://z91av.me?_c=tz9118</li>
 <li>榴莲视频：https://llav1.me?_c=tliuzc18</li>
 <li>向日葵视频：https://xrk1.me?_c=txrk04</li>
